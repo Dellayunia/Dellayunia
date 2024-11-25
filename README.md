@@ -1,7 +1,8 @@
 ## Hi!👋I'm Della
 
 <!--
-**Dellayunia/Dellayunia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+📫 Reach me through my email: dellayunia1414@gmail.com
 
 Here are some ideas to get you started:
 - 
