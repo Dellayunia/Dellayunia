@@ -1,8 +1,11 @@
 ## Hi!👋I'm Della
 
+👨‍💻 My projects are available at https://bit.ly/dellayunia-portfolio 
+📫 Reach me through my email: dellayunia1414@gmail.com
+
 <!--
 
-📫 Reach me through my email: dellayunia1414@gmail.com
+
 
 Here are some ideas to get you started:
 - 
